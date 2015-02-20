@@ -3,5 +3,4 @@
 - Horse
 - Brown Hair
 - Brown eyes 
-- 34 yearsold 
-- Tramp stamp
+- 34 yearsold
