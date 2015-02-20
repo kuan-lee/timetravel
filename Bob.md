@@ -4,3 +4,4 @@
 - blue hair
 - orange eyes
 - 3 meters tall
+- nose tattoo
