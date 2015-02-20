@@ -4,4 +4,4 @@
 - blue hair
 - orange eyes
 - 3 meters tall
-- face tatotoo
+- noe amputation
